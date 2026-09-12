@@ -1,4 +1,4 @@
-# Hi, I'm Valary Akose
+# Hi, Valary Akose here,
 
 ### Computer Science Student · Aspiring Software Engineer · Product Builder
 
